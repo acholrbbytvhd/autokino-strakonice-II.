@@ -1,0 +1,1 @@
+# autokino-strakonice-II.
